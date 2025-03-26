@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...fullstack development
 - 🌱 I’m currently learning ...AI ML
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...kpsruthee@gmail.com
+- 📫 How to reach me ... kpsruthee@gmail.com
 - 😄 Pronouns: ...she
 - ⚡ Fun fact: ...
 
